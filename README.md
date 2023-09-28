@@ -1,8 +1,8 @@
 Mandeep Yadav 🚀
 📍 Indore, India 🇮🇳 | 📧 mandeep7yadav@gmail.com 
 
-🌐 LinkedIn [LinkedIn](https://www.linkedin.com/in/mandeep-yadav-58227925b)
- | 📸 Instagram [Instagram](https://www.instagram.com/themandeepyadav)
+You can also find me on [🌐LinkedIn](https://www.linkedin.com/in/mandeep-yadav-58227925b)
+ |[📸Instagram](https://www.instagram.com/themandeepyadav)
 
 
 👨‍💻 About Me
